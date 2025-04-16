@@ -1,6 +1,3 @@
-# [![Join Discord](https://img.shields.io/badge/💬_Join_Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/invite/t4kmCEQP2x)
-# [![Download Now](https://img.shields.io/badge/⬇️_Download_Now-00CC00?style=for-the-badge&logo=arrow-down&logoColor=white)](https://tinyurl.com/sapphire-safari-download) 
-
 # Sapphire Safari [Kinky Fridays]
 
 **Sapphire Safari** is an *Adult, Adventure, Casual* video game developed and published by **Kinky Fridays**. It was released on **22 Mar, 2025**, for **Windows**.
